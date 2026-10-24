@@ -9,6 +9,7 @@ but this GH will be only for PT!
 - Chat is always off,but you can whisp me to int I (if you want/W2i)/(hide freely + mute) -_-
 - always afk/safk or idk?
 - please be patient to me to answer.!
+- basic PT info ok.
 
   where??: bakery (near to market or idk),library(idk),or casually at pmoon area(at spawn)
   - lone alwys or with friends.
