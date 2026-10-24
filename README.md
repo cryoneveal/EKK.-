@@ -1,4 +1,4 @@
-## Wellcome to my GitHub !
+###  Wellcome to my GitHub !
 ref me as `cryo` !
 
 Block if unwanted.
@@ -13,4 +13,6 @@ but this GH will be only for PT!
   where??: bakery (near to market or idk),library(idk),or casually at pmoon area(at spawn)
   - lone alwys or with friends.
    ### Fandoms ↓↓↓ •
-  Pmoon(lcb,lor,LC),Gi,Crk,wtdsik (am to lazy to put my other fandoms /images)
+  Pmoon(lcb,lor,LC),Gi,Crk,wtdsik
+
+  (am to lazy to put my other fandoms /images)
